@@ -1,0 +1,2 @@
+# lagapremier
+# strategi-ampuh
